@@ -1,1 +1,1 @@
-# Ginny Wiki
+# Travel
